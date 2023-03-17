@@ -1,2 +1,0 @@
-# serkann
-Mavi tik
